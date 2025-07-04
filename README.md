@@ -1,1 +1,0 @@
-# kalilendi_forex_bot
